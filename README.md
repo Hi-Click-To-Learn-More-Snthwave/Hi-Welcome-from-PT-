@@ -1,5 +1,5 @@
 # Hi-Welcome-from-PT-
-Let's learn more about me, yeah!?
+Let's learn more about me, yeah? I'm happy to introduce myself!
 
 You are most likely seeing this because you got curious as to who I am on pt!
 
@@ -7,7 +7,9 @@ I am 25, a dude and really laid back and chill. I'm 420 friendly and it takes a 
 
 You can typically find me chilling or taking part in rps, I'm always happy to rp or chat and you are always welcome to sit with me, vent to me or cuddle me!
 
-Somethings to note!
+I'm very friendly pretty much all the time so don't be afraid to say hello and chill I don't bite... Most of the time >:3
+
+!!!SOMETHINGS TO NOTE!!!
 
 Its very rare I ERP so please don't ask
 
