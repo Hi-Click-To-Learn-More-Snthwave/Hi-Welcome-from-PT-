@@ -9,6 +9,10 @@ You can typically find me chilling or taking part in rps, I'm always happy to rp
 
 I'm very friendly pretty much all the time so don't be afraid to say hello and chill I don't bite... Most of the time >:3
 
+I love music, and of course video games and I may or may not love me my coffee and energy drinks
+
+Ask me about my cos and ocs to watch me geek out hardcore
+
 !!!SOMETHINGS TO NOTE!!!
 
 Its very rare I ERP so please don't ask
@@ -20,3 +24,5 @@ I may be single but your chances of ODing me is so small you'd have a better sho
 No drama
 
 I'm always happy to make friends but I will remove you for a number of reasons including lying about your age, constant drama, attention seeking or being inactive for 14 or more days
+
+Be paient with me, I can become easily distracted and I'm very slow socially so I wont pick up on social Qs all that well
