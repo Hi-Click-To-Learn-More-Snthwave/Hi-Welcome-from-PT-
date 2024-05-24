@@ -7,6 +7,8 @@ I am 25, a dude and really laid back and chill. I'm 420 friendly and it takes a 
 
 I am happily taken! <3 05/23/24
 
+I'm pandemisexual/romantic
+
 I'm a selective mute
 
 You can typically find me chilling or taking part in rps, I'm always happy to rp or chat and you are always welcome to sit with me, vent or chill
