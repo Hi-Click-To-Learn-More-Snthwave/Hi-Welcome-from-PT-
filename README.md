@@ -5,7 +5,7 @@ You are most likely seeing this because you got curious as to who I am on pt!
 
 I am 25, a dude and really laid back and chill. I'm 420 friendly and it takes a lot to offend me
 
-I am happily taken! <3 05/23/24
+I await you, till than, I shall battle on the frontlines for you
 
 I'm pandemisexual/romantic
 
@@ -21,7 +21,7 @@ Ask me about my cos and ocs to watch me geek out hardcore
 
 !!!SOMETHINGS TO NOTE!!!
 
-I'm taken so don't bother asking for an erp
+I don't erp so don't ask
 
 NO MINORS PLEASE! For obvious reasons I don't want my friends list to contain minors
 
