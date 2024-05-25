@@ -32,6 +32,5 @@ I'm always happy to make friends but I will remove you for a number of reasons i
 Be paient with me, I can become easily distracted and I'm very slow socially so I wont pick up on social Qs all that well
 
 
-CHECK OUT THIS NEATO SONG! - Help Me Through The Night by Written By Wolves
-
-https://youtu.be/1Q_qvN7s2ec?si=8emaOVfO5yhj6jUP
+CHECK OUT THIS NEATO SONG! - Story of my Life by ILLENIUM
+https://youtu.be/Xkw849zC3OQ?si=GXWrM3pnnQVfoozt
