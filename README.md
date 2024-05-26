@@ -21,7 +21,7 @@ Ask me about my cos and ocs to watch me geek out hardcore
 
 !!!SOMETHINGS TO NOTE!!!
 
-I don't erp so don't ask
+I'm taken so don't even try to ask for erp, fast way to get hidden
 
 NO MINORS PLEASE! For obvious reasons I don't want my friends list to contain minors
 
