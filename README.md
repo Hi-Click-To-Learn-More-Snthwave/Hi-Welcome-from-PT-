@@ -3,9 +3,9 @@ Let's learn more about me, yeah? I'm happy to introduce myself!
 
 You are most likely seeing this because you got curious as to who I am on pt!
 
-I am 25, a dude and really laid back and chill. I'm 420 friendly and it takes a lot to offend me
+I'm 25, a dude and really laid back and chill. I'm 420 friendly and it takes a lot to offend me
 
-I await you, till than, I shall battle on the frontlines for you
+<3 5/26/24
 
 I'm pandemisexual/romantic
 
@@ -32,5 +32,5 @@ I'm always happy to make friends but I will remove you for a number of reasons i
 Be paient with me, I can become easily distracted and I'm very slow socially so I wont pick up on social Qs all that well
 
 
-CHECK OUT THIS NEATO SONG! - Hikaru Utada & Skrillex - Face My Fears (Kasger x MELURAN Bootleg)
-https://www.youtube.com/watch?v=aJEDmnS68HI
+CHECK OUT THIS NEATO SONG! - Smash Into Pieces - Afterglow
+https://www.youtube.com/watch?v=mF-PcpAjgZI
