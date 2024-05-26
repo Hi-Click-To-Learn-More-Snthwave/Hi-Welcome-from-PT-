@@ -32,5 +32,5 @@ I'm always happy to make friends but I will remove you for a number of reasons i
 Be paient with me, I can become easily distracted and I'm very slow socially so I wont pick up on social Qs all that well
 
 
-CHECK OUT THIS NEATO SONG! - Story of my Life by ILLENIUM
-https://youtu.be/Xkw849zC3OQ?si=GXWrM3pnnQVfoozt
+CHECK OUT THIS NEATO SONG! - Hikaru Utada & Skrillex - Face My Fears (Kasger x MELURAN Bootleg)
+https://www.youtube.com/watch?v=aJEDmnS68HI
