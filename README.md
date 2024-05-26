@@ -29,7 +29,9 @@ No drama
 
 I'm always happy to make friends but I will remove you for a number of reasons including lying about your age, constant drama, attention seeking or being inactive for 14 or more days
 
-Be paient with me, I can become easily distracted and I'm very slow socially so I wont pick up on social Qs all that well as well as I can shut down emotionally/mentally if pushed the wrong way
+Be paient with me, I can become easily distracted and I'm very slow socially so I wont pick up on social Qs
+
+We love BP 1 here (not really, send help)
 
 
 CHECK OUT THIS NEATO SONG! - Smash Into Pieces - Afterglow
