@@ -31,7 +31,7 @@ I'm always happy to make friends but I will remove you for a number of reasons i
 
 Be paient with me, I can become easily distracted and I'm very slow socially so I wont pick up on social Qs
 
-We love BP 1 here (not really, send help)
+We love BPD1 here (not really, send help)
 
 
 CHECK OUT THIS NEATO SONG! - Smash Into Pieces - Afterglow
