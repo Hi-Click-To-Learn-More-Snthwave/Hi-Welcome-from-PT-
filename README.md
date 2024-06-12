@@ -5,7 +5,7 @@ You are most likely seeing this because you got curious as to who I am on pt!
 
 I'm 25, a dude and really laid back and chill. I'm 420 friendly and it takes a lot to offend me
 
-<3 5/25/24
+N/A
 
 I'm pandemisexual/romantic
 
