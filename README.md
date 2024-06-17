@@ -3,7 +3,7 @@ Let's learn more about me, yeah? I'm happy to introduce myself!
 
 You are most likely seeing this because you got curious as to who I am on pt!
 
-I'm 25, a dude and really laid back and chill. I'm 420 friendly and it takes a lot to offend me
+I'm 26, a dude and really laid back and chill. I'm 420 friendly and it takes a lot to offend me
 
 Happily taken by the love of my life Rosi <3 (6/17/24)
 
@@ -11,7 +11,7 @@ I'm Pansexual/Greyromantic
 
 I'm a selective mute
 
-You can typically find me chilling or taking part in rps, I'm always happy to rp or chat and you are always welcome to sit with me, vent or chill
+You can typically find me chilling in the library or taking part in rps, I'm always happy to rp or chat and you are always welcome to sit with me, vent or chill
 
 I'm very friendly pretty much all the time so don't be afraid to say hello and chill
 
@@ -29,10 +29,7 @@ No drama
 
 I'm always happy to make friends but I will remove you for a number of reasons including lying about your age, constant drama, attention seeking or being inactive for 14 or more days
 
-Be paient with me, I can become easily distracted and I'm very slow socially so I wont pick up on social Qs
+Be paient with me, I can become easily distracted and I'm very slow socially so I wont pick up on social Qs as well as I have Bipolar 1 so please be patient
 
-We love BPD1 here (not really, send help)
-
-
-CHECK OUT THIS NEATO SONG! - Mitis Home (Nurko Remix)
-https://youtu.be/32YLu8xhfWE?si=JNbEv8XPVU7_993H
+CHECK OUT THIS NEATO SONG! - Ice Nine Kills Thank God It's Friday
+https://youtu.be/2kPx70hcpiA?si=rqp7oZtbOpjVRUl-
