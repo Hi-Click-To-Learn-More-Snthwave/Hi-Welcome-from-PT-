@@ -5,9 +5,9 @@ You are most likely seeing this because you got curious as to who I am on pt!
 
 I'm 25, a dude and really laid back and chill. I'm 420 friendly and it takes a lot to offend me
 
-Single and not looking fuck off
+Happily taken by the love of my life Rosi <3 (6/17/24)
 
-I'm pandemisexual/romantic
+I'm Pansexual/Greyromantic
 
 I'm a selective mute
 
