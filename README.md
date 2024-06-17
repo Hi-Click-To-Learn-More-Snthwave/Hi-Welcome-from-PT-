@@ -7,7 +7,7 @@ I'm 26, a dude and really laid back and chill. I'm 420 friendly and it takes a l
 
 Happily taken by the love of my life Rosi <3 (6/17/24)
 
-I'm Pansexual/Greyromantic
+I'm Demipansexual/Greyromantic
 
 I'm a selective mute
 
