@@ -3,9 +3,11 @@ Let's learn more about me, yeah? I'm happy to introduce myself!
 
 You are most likely seeing this because you got curious as to who I am on pt!
 
+As a note I have a system of 3, the 3 are Jack, Naganuma and Abyssos
+
 I'm 26, a dude and really laid back and chill. I'm 420 friendly and it takes a lot to offend me
 
-Happily taken by the love of my life Rosi <3 (6/17/24)
+Single [I dont want anyone]
 
 I'm Demipansexual/Greyromantic
 
