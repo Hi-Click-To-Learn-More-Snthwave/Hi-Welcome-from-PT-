@@ -7,7 +7,7 @@ As a note I have a system of 3, the 3 are Jack, Naganuma and Abyssos
 
 I'm 26, a dude and really laid back and chill. I'm 420 friendly and it takes a lot to offend me
 
-Single [I dont want anyone]
+Taken 06/17/24 Rosi
 
 I'm Demipansexual/Greyromantic
 
