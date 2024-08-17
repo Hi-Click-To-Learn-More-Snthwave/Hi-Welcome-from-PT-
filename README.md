@@ -1,4 +1,4 @@
-# Hi-Welcome-from-PT-
+I# Hi-Welcome-from-PT-
 Let's learn more about me, yeah? I'm happy to introduce myself!
 
 You are most likely seeing this because you got curious as to who I am on pt!
@@ -7,7 +7,7 @@ As a note I have Borderline Personality Disorder and currently fighting to get i
 
 I'm 26, a dude and really laid back and chill. I'm 420 friendly and it takes a lot to offend me
 
-Single and worth no one's time
+Taken by Rosi 6/17/24
 
 I'm Demipansexual/Greyromantic
 
