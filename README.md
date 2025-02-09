@@ -7,7 +7,7 @@ As a note I have Borderline Personality Disorder and currently fighting to get i
 
 I'm 26, a dude and really laid back and chill. I'm 420 friendly and it takes a lot to offend me
 
-Taken by Rosi 6/17/24
+Single but I'm just a drifter love, nothin to it <3
 
 I'm Demipansexual/Greyromantic
 
@@ -23,15 +23,16 @@ Ask me about my cos and ocs to watch me geek out hardcore
 
 !!!SOMETHINGS TO NOTE!!!
 
-I'm taken so don't even try to ask for erp, fast way to get hidden
+No I'm not looking to ERP or even Online Date.
 
 NO MINORS PLEASE! For obvious reasons I don't want my friends list to contain minors
 
 No drama
 
-I'm always happy to make friends but I will remove you for a number of reasons including lying about your age, constant drama, attention seeking or being inactive for 14 or more days
+I'm always happy to make friends but I will remove you for a number of reasons including lying about your age, constant drama, attention seeking or being inactive for 30 or more days
 
-Be paient with me, I can become easily distracted and I'm very slow socially so I wont pick up on social Qs as well as I have Bipolar 1 so please be patient
+Be paient with me, I can become easily distracted and I'm very slow socially so I wont pick up on social Qs as well as I have Borderline Personality Disorder so please be patient
 
-CHECK OUT THIS NEATO SONG! - Ice Nine Kills Thank God It's Friday
-https://youtu.be/2kPx70hcpiA?si=rqp7oZtbOpjVRUl-
+CHECK OUT THIS NEATO SONG!
+Ekoh x Colorblind - Haunted
+https://youtu.be/R2sTHfkXwrY?si=z_s2kzfAfEgtNyTk
