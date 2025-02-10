@@ -21,7 +21,8 @@ Ask me about my cos and ocs to watch me geek out hardcore
 
 !!!SOMETHINGS TO NOTE!!!
 
-No I'm not looking to ERP or even Online Date.
+I rarely ERP with strangers.
+I rarely ever Online Date since its more or a hassle and nothing good has ever come from it
 
 NO MINORS PLEASE! For obvious reasons I don't want my friends list to contain minors
 
