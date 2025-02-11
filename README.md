@@ -7,7 +7,7 @@ I'm 26, a dude and really laid back and chill. I'm 420 friendly and it takes a l
 
 Single but I'm just a drifter love, nothin to it <3
 
-I'm Demipansexual/Greyromantic
+I'm Pansexual/Greyromantic
 
 I'm a selective mute
 
