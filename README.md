@@ -1,7 +1,7 @@
 I# Hi-Welcome-from-PT-
 Let's learn more about me, yeah? I'm happy to introduce myself!
 
-TLDR Ver: 26 male, C+H allowed, willing to rp, stoner, feel free to chat, rarely erp with strangers and rarely online date if at all since its more of a hassel than needs to be
+TLDR Ver: 26 male, borderline personality disorder, C+H allowed, willing to rp, stoner, feel free to chat, rarely erp with strangers and rarely online date if at all since its more of a hassel than needs to be
 
 You are most likely seeing this because you got curious as to who I am on pt!
 
