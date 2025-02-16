@@ -25,7 +25,7 @@ Ask me about my cos and ocs to watch me geek out hardcore
 
 !!!SOMETHINGS TO NOTE!!!
 
-I'm more likely to ERP if I know you
+I'm more likely to ERP if I know you but even than its rare. To put it into perspective you are more likely to get explicit images from me than an ERP
 
 I rarely ever Online Date since its more or a hassle and nothing good has ever come from it
 
