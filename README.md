@@ -38,5 +38,5 @@ I'm always happy to make friends but I will remove you for a number of reasons i
 Be paient with me, I can become easily distracted and I'm very slow socially so I wont pick up on social Qs as well as I have Borderline Personality Disorder so please be patient
 
 CHECK OUT THIS NEATO SONG!
-Ekoh x Colorblind - Haunted
-https://youtu.be/R2sTHfkXwrY?si=z_s2kzfAfEgtNyTk
+Camellia - Artificial Snow
+https://youtu.be/QG-oGP2KKUw?si=60jwr0DHskBiBrXc
