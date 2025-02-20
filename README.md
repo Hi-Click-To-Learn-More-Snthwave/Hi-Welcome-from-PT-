@@ -1,7 +1,7 @@
 I# Hi-Welcome-from-PT-
 Let's learn more about me, yeah? I'm happy to introduce myself!
 
-TLDR Ver: 26 male, minors DNI, borderline personality disorder, C+H allowed, willing to rp, stoner, feel free to chat, Happily taken by Foxune. You can do MVs of my OCs freely but ask before matching or copying as some are no. Trying to take credit for my OCs will result in a perma block.
+TLDR Ver: 26 male, minors DNI, borderline personality disorder, C+H allowed, willing to rp, stoner, feel free to chat, I rarely Online date if at all, not worth the hassle. I rarely ERP if at all. You can do MVs of my OCs freely but ask before matching or copying as some are no. Trying to take credit for my OCs will result in a perma block.
 
 
 
@@ -9,7 +9,7 @@ FULL Ver: You are most likely seeing this because you got curious as to who I am
 
 I'm 26, a dude and really laid back and chill. I'm 420 friendly and it takes a lot to offend me
 
-Happily taken by Foxune 02/20/25 I'm was a drifter love <3
+I'm just a drifter. Love isn't worth my time man because people are cruel and unforgiving
 
 I'm Pansexual/Greyromantic
 
