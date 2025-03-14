@@ -27,7 +27,7 @@ Ask me about my cos and ocs to watch me geek out hardcore
 
 You can take inspiration from my ocs, I'm not stuk up like others though I do ask you ask me before doing an MV, matching or a copy of any of my OCS as some are a no. If you get permission and try to take credit you will be perma blocked as It's not cool bro
 
-I'm more likely to ERP if I know you but even than its rare. To put it into perspective you are more likely to get explicit images from me than an ERP
+I'm more likely to ERP if I know you but even than its rare if at all
 
 I rarely ever Online Date since its more or a hassle and nothing good has ever come from it
 
